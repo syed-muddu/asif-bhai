@@ -1,1 +1,1 @@
-assalamualikum
+walekumassalam
